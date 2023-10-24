@@ -1,4 +1,4 @@
-### Hi there,👋 I'm Chepkoech Mutai
+ Hi there,👋 I'm Chepkoech Mutai
 - 🔭 I’m interested in Data Analysis 
 - 📫 How to reach me: 0723654761/0719446954 caremut93@gmail.com
   
